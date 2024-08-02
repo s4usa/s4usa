@@ -1,4 +1,4 @@
-## boas vindaS ao meu perfil 💙
+## boas vindas ao meu perfil 💙
 
 Sou Beatriz carolaine
 
